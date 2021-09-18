@@ -1,2 +1,2 @@
-# Strogonoffo de grango
+# Strogonoffo de frango
 
